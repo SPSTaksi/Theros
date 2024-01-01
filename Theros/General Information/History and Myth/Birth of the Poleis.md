@@ -1,0 +1,7 @@
+The end of the Age of Trax corresponds roughly with the rise of the fourth and latest generation of gods, whose interests lie in the application of the more abstract principles to the realities of mortal life. Three of these gods (Ephara, Iroas and Karametra) played significant roles in the establishment of human civilization, in oppositions to the archons.
+
+The goddess Ephara inspired and equipped two human heroes, Kynaios and Tiro, to overthrow the archon Agnomakhos. Divergent tales describe their history following the defeat of the tyrant. Some claim that they warred with each other for control over the region and that only their eventual death paved the way for the peace that allowed the new polis of Meletis to flourish. The truth is that they ruled Meletis peacefully together, established its legal code, and defended it for decades.
+
+After the fall of Agnomakhos and the other archons of Trax, humans and minotaurs wages a bloody war in the highlands. The poleis of Akros and Skophos were born from that bloodshed, inspired by the martial doctrines of Iroas and Mogis rather than the legal code of Ephara. Eventually the years of war settled into an uneasy peace with the badlands of Phoberos as a barried separating the poleis from each other.
+
+Meletis, Akros and Skophos perpretuated the stark division between civilization and nature that inherent in the archons' rule. While most humans (and minotaurs) embrached the division, the god Karametra tried to teach people a new way of living in harmony with nature, leading to the founding of Setessa.

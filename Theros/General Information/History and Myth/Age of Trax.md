@@ -1,0 +1,5 @@
+Human history vaguely recalls an era just before the birth of modern human civilization, called the Age of Trax. This semi-mythical era, nestled several centuries back in the fog of historical memory, is marked by the rule of supernatural beings called archons.
+
+The archons of Trax are said to have come from unknown lands to the north and established a heavy-handed rule over the humanoids of Theros. Many peoples remember this as a time of oppressive servitude, when they were force into the armies of the tyrant Agnomakhos. 
+
+The archons dubiously suggested that their rule actually protected the weaker species (Centaurs, humans, leonin, minotaurs and satyrs) from the dangers of far more powerful beings. Giants, demons and medusas are said to have ruled kingdoms of their own in those days, and tales tell of Agnomakhos leading his leonin soldiers to repel an invading army of giants. Dragons, krakens and hydras are also said to have grown to even greater size in those days than they do now, annihilating whole nations and carving untold catastrophes across the land.
